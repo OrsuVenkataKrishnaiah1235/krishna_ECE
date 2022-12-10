@@ -1,2 +1,2 @@
 # krishna_ECE
-Everything Happens for Good knowledge Acknowledge In Life River
+Everything Happens for a Good knowledge Acknowledge like in a  Life River
